@@ -30,11 +30,7 @@
 
 ![Screenshot 2025-06-13 191507](https://github.com/user-attachments/assets/f7b856a2-2fc6-407f-9b97-28332da170f6)
 
-
-![Screenshot 2025-06-13 194855](https://github.com/user-attachments/assets/43bae647-a1fd-4d41-8599-cbcefc5bbf55)
-
-
-
+![Screenshot 2025-06-13 195424](https://github.com/user-attachments/assets/d44c511b-a2f0-4f56-bc89-68ccbb0934d6)
 
 
 
